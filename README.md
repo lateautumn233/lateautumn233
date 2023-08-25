@@ -5,5 +5,9 @@
 
 ### ⛄ Genshin Impact
 ![lateautumn233](https://genshin-card.himiku.com/56/187215723.png)
-[telegram](https://t.me/lateautumn233)  
-[coolapk](http://www.coolapk.com/u/2757717)
+
+**📫 How to Reach me:**
+- e-mail  : [lateautumn233@foxmail.com](mailto:lateautumn233@foxmail.com)
+
+- telegram  : [lateautumn](https://t.me/lateautumn233)  
+- coolapk  : [秋秋丶](http://www.coolapk.com/u/2757717)
