@@ -10,4 +10,4 @@
 - e-mail  : [lateautumn233@foxmail.com](mailto:lateautumn233@foxmail.com)
 - telegram : [lateautumn](https://t.me/lateautumn233)  
 - coolapk  : [秋秋丶](http://www.coolapk.com/u/2757717)
-- QQ :  [秋秋丶](https://qiuqiu233.top/软件/movie/192d9a98d782d9c74c96f09db9378d93.mp4)
+- QQ :  [秋秋丶](https://vdse.bdstatic.com//192d9a98d782d9c74c96f09db9378d93.mp4)
